@@ -32,3 +32,9 @@
 * [@uniqueque](https://github.com/uniqueque)
 
 * [@nzw9314](https://github.com/nzw9314)
+
+
+## 懒人京东自助代挂，全自动托管(添加/更新) 扫码登录获取ck即可。
+
+### [`跳转`(点击快捷到达指定页面)](http://www.zyyxx1.tk:1234/) 
+
